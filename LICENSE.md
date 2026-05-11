@@ -1,4 +1,4 @@
-#  
+#  advanced Things 3 for macOS Integration | database templates + multi-device sync offers the most advanced Things 3 for macOS integration, with database templates and multi-device
 
 
 
